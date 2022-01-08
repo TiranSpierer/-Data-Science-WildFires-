@@ -1,1 +1,1 @@
-![Wildfires - Poster](https://user-images.githubusercontent.com/68168714/148655086-02af97da-7b1b-4897-b34f-3b0840809e33.png)
+![Wildfires - Poster](https://user-images.githubusercontent.com/68168714/148655249-753bea0b-4802-46dd-a203-ccfc81e5aaf0.png)
